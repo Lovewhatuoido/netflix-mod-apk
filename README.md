@@ -2,7 +2,7 @@
 
 ## Apa itu Netflix MOD APK?
 
-### ➡️Unduh Disini ⬇️: [Netflix MOD APK Untuk Androi](https://modhello.com/netflix/)📲
+### ➡️Unduh Disini ⬇️: [Netflix MOD APK Untuk Android](https://modhello.com/netflix/)📲
 
 Netflix MOD APK adalah versi modifikasi dari aplikasi Netflix yang memungkinkan pengguna mengakses fitur streaming premium tanpa berlangganan. Aplikasi ini menawarkan kualitas 4K Ultra HD, streaming tanpa iklan, dan unduhan tanpa batas. Ini membuka seluruh perpustakaan Netflix secara gratis, ideal untuk penggemar film dan binge-watcher.  
 
